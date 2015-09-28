@@ -1,15 +1,15 @@
 # Hideki Saito
 * Clannad
 * DOG DAYS
-* ¥¬¡¼¥ë¥º&¥Ñ¥ó¥Ä¥¡¡¼
-* Æü¾ï
-* ¥½¡¼¥É¥¢¡¼¥È¡¦¥ª¥ó¥é¥¤¥ó
+* ã‚¬ãƒ¼ãƒ«ã‚º&ãƒ‘ãƒ³ãƒ„ã‚¡ãƒ¼
+* æ—¥å¸¸
+* ã‚½ãƒ¼ãƒ‰ã‚¢ãƒ¼ãƒˆãƒ»ã‚ªãƒ³ãƒ©ã‚¤ãƒ³
 
-## ¥é¥¤¥»¥ó¥¹
+## ãƒ©ã‚¤ã‚»ãƒ³ã‚¹
 * [Creative Commons Attribution 4.0 International (CC BY 4.0)](https://creativecommons.org/licenses/by/4.0/)
 
 # fu7mu@gmail.com
-* SHIROBAKO (SKKÈÇ¤ò¸µ¤ËHideki Saito¤Ë¤è¤êmozcÈÇ¤òºîÀ®¡Ë
+* SHIROBAKO (SKKç‰ˆã‚’å…ƒã«Hideki Saitoã«ã‚ˆã‚Šmozcç‰ˆã‚’ä½œæˆï¼‰
 
-## ¥é¥¤¥»¥ó¥¹
+## ãƒ©ã‚¤ã‚»ãƒ³ã‚¹
 * [Creative Commons 0](https://creativecommons.org/publicdomain/zero/1.0/) or public domain
